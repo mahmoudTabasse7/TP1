@@ -7,7 +7,7 @@ L'École du micro d'argent\
 L'École du micro d'argent\
 L'École du micro d'argent\
 L'École du micro d'argent\
-L'École du micro d'argent\
+L'École du micro d'argent
 
 Assis en tailleur, voilà des heures que je médite\
 Sur ma montagne et je n'arrive pas à faire le vide\
@@ -30,7 +30,7 @@ Je sème la terreur quand je frappe d'estoc et de taille\
 Je sens l'esprit du félin m'envahir\
 À ce stade seul le sang me procure du plaisir\
 Mes griffes gravent les couleurs de l'Empire\
-Plus grand que celui d'Alexandre dont je suis le défenseur\
+Plus grand que celui d'Alexandre dont je suis le défenseur
 
 L'École du micro d'argent\
 L'École du micro d'argent\
@@ -42,7 +42,7 @@ L'École du micro d'argent\
 L'École du micro d'argent\
 Je représente\
 L'École du micro d'argent\
-L'École du micro d'argent\
+L'École du micro d'argent
 
 Mon sabre scintille, je médite accroupi sous les branches d'un saule\
 Pleure, je défends l'honneur de mon école, fils\
@@ -64,7 +64,7 @@ La bataille a débuté, tiens\
 Ce coup vient d'un expert à la guerre\
 Vaillant praticien des arts martiens\
 Délégué pour mettre un terme à ces horreurs\
-Tel est mon labeur, tu sais de qui je défends l'honneur\
+Tel est mon labeur, tu sais de qui je défends l'honneur
 
 L'École du micro d'argent\
 L'École du micro d'argent\
@@ -73,7 +73,7 @@ L'École du micro d'argent\
 L'École du micro d'argent\
 L'École du micro d'argent\
 L'École du micro d'argent\
-L'École du micro d'argent\
+L'École du micro d'argent
 
 **Source: Musixmatch**\
 **Paroliers: Ron Smith / Geoffroy Mussard / Eric Mazel /Pascal Jean Perez / Philippe Tristan/Fragione / William Greene**\
